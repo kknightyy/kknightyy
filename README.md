@@ -1,3 +1,1 @@
-### Hi there 👋
-
-I am roblox exploiter who needs rebex to survive please doonate to meeeee!
+[kknightyy's github stats](https://github-readme-stats.vercel.app/api/top-langs/?username=kknightyy&layout=compact)
